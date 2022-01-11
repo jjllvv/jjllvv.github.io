@@ -1,4 +1,4 @@
-## Welcome to sound artist and musician Joël Lavoie website. 
+## Welcome to the website of sound artist and musician Joël Lavoie.
 
 
 it is currently under construction and will be online soon. 
